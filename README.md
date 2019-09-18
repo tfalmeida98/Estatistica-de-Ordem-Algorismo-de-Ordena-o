@@ -1,0 +1,1 @@
+# Estatistica-de-Ordem-Algorismo-de-Ordena-o
